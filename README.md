@@ -534,25 +534,8 @@ Bene is gay
 Bene is gay
 Bene is gay
 Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
-Bene is gay
+
+
 Bene is gay
 Bene is gay
 Bene is gay
