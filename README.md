@@ -1,1 +1,1 @@
-Sebi x Anon = gay
+Kon'nichiwa
